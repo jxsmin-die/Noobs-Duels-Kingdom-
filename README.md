@@ -14,4 +14,4 @@
 
 <a id="Noobs Duels Kingdom Discord Server">https://discord.gg/4geAu88gvM</>
 
-https://media.discordapp.net/attachments/1361686047293051002/1370831952948629785/Noobs_1.png?ex=6820ee3e&is=681f9cbe&hm=c76567abe2a70c4b29380193e9424a7b1a4d34b63cf0ca1fa7771d02b7d72507&=&format=webp&quality=lossless&width=1163&height=717
+https://media.discordapp.net/attachments/1361686047293051002/1370831952948629785/Noobs_1.png?ex=6820ee3e&is=681f9cbe&hm=c76567abe2a70c4b29380193e9424a7b1a4d34b63cf0ca1fa7771d02b7d72507&
